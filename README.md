@@ -30,3 +30,25 @@ Pensar em sua carreira em termos de uma treliça em vez de uma escada lhe dá ma
 - Supere os obstáculos da carreira
 
 Sua carreira não existe isolada do resto de sua vida. E enquanto algumas pessoas pensam que o sucesso significa recompensa financeira, outras têm uma visão mais ampla.
+
+Quando seu trabalho reflete seus princípios, é mais provável que você se sinta satisfeito com a sua carreira.
+
+Poucas pessoas ficam no mesmo emprego da graduação à aposentadoria. Na verdade, apenas 1 em cada 5 empresas ainda tem planos de carreira definidos da forma tradicional.
+
+Não deixe que seu cargo defina quem você é. É muito fácil confundir entre um trabalho que você faz bem e um que traz satisfação. Se você não estiver satisfeito, pode acabar se esgotando no trabalho, o que não é vantajoso para você ou para sua empresa..
+
+A paixão é o combustível que impulsiona sua carreira.
+
+Não importa em que estágio da carreira você esteja, sempre avalie suas habilidades – as que você já tem e as que gostaria de adquirir.
+O sucesso profissional depende de sua eficácia em identificar e desenvolver habilidades – e transformá-las em ativos.
+
+Para fazer do aprendizado um hábito:
+
+Concentre-se nas mais novas habilidades do setor
+Aproxime-se de outras pessoas que estão aprendendo
+Implemente imediatamente o que aprendeu
+Identifique metas intermediárias a atingir
+
+
+
+
