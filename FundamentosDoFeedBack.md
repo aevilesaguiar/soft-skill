@@ -143,9 +143,32 @@ Com a permissão da pessoa, pergunte: "Eu gostaria de conversar sobre a reunião
 Para evitar os mesmos erros, reúna informações de membros da equipe sobre as lições aprendidas com projetos passados.
 
 
+Buscar feedback
+Os gerentes eficazes sabem que precisam receber feedback — não somente dar feedback. Aprenda como usar o feedback para melhorar seu próprio desempenho.
+
+
+Se nunca buscou feedback, você não está sozinho. Muitas pessoas passam sua vida profissional toda sem nunca solicitar feedback.
 
 
 
+O feedback de seu gerente é fundamental para o seu desenvolvimento como líder. Ele provavelmente tem algumas ideias sobre o que é necessário para ser bem-sucedido em sua organização. E pode ajudá-lo a ver seus pontos fortes e reconhecer os obstáculos que aparecem pela frente.
+
+Autoavaliação
 
 
+Antes de solicitar feedback ao seu gerente, reserve um tempo para ampliar sua autoconsciência. Quais pontos fortes você atualmente usa no seu trabalho? Existem áreas em que você enfrenta dificuldades, como habilidades, resultados ou relacionamentos?
 
+Pense em quais elementos do seu trabalho são mais importantes. A seguir, revise o feedback que você recebeu de colegas sobre essas áreas no passado. Considere tanto o feedback formal quanto o informal. Observe também o feedback não verbal que você recebeu, como expressões faciais, linguagem corporal e silêncios.
+
+E se eu não concordar?
+
+
+Durante a sua carreira, você receberá feedbacks que são injustificados ou equivocados. Sua melhor reposta? Fique calmo e use a diplomacia:  
+
+Observe se a outra pessoa realmente acredita que está certa. Essa mudança mental não significa que você passou a concordar, mas ajuda você a ter empatia pela perspectiva da outra pessoa por um momento.
+
+Examine por que você discorda do feedback. Confirme se você não está simplesmente negando o que a outra pessoa disse.
+
+Não contra-ataque. Após parafrasear o que a pessoa disse e verificar o que você ouviu, explique o que não parece ser válido e veja como a outra pessoa reage.
+
+Avalie qual o impacto de sua recusa a aceitar o conselho dado. Você pode ignorar alguns feedbacks errados sem problemas. Entretanto, se você trabalha com essa pessoa regularmente, será melhor explicar seus motivos para não aceitar o conselho. Faça isso quando você e a pessoa que lhe deu o feedback estiverem calmos e receptivos.
